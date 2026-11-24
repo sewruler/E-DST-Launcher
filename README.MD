@@ -1,2 +1,2 @@
 Project E-DST LAUNCHER CHO DST
-tải về tại: https://edst.linkez.top/
+tải về phiên bản mới nhất tại: https://edst.linkez.top/
